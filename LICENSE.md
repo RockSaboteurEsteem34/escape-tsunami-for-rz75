@@ -1,4 +1,4 @@
-#  
+#  escape tsunami for brainrots updated Script is the best escape tsunami for brainrots Script, featuring no clip and fly. Safe and powerful for all
 
 
 
